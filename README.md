@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my culture
 - 📫 How to reach me ........
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: if you tell someone that their pronouns are was/were they will make your pronouns was/were
+    - ⚡ Fun fact: i love ia
 
 <!---
 Simga-crypto/Simga-crypto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
